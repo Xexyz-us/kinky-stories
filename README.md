@@ -1,2 +1,3 @@
-# kinky-stories
-A collection of kinky stories.
+# Kinky Stories
+
+A collection of kinky stories, usually around ABDL themes.
